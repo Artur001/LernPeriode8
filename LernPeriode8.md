@@ -1,3 +1,5 @@
+# Lernperiode 8
+
 ## Grobplanung
 
 In dieser Lernperiode möchte ich gerne die nächsten Paar Module in Detail bearbeiten und ich möchte gerne meine Zeit in der ILA benutzen um mich bei meinen Schwächen zu verbessern. Diese Schwächen zeigen sich während der Woche und ich werde mein Bestes geben, um mehr zu lernen. Meine Noten sind gut meiner Meinung nach und ich finde es wird durch meine Noten kein Problem werden.
